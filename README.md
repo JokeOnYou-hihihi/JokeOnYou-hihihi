@@ -1,10 +1,14 @@
 ## ┏━━━━✦❘༻༺❘✦━━━━┓
 
-⊰【 Introduction 】⊱
+![Image](https://github.com/user-attachments/assets/6766c710-73db-4f00-8e98-311855be0e7b) ⊰【 Introduction 】⊱
 
 call me Skyler/Joker/Snow/Swan!
 
 She/They | She/Her
+
+![Image](https://github.com/user-attachments/assets/6766c710-73db-4f00-8e98-311855be0e7b)⊰【 Information 】⊱
+
+![Image](https://github.com/user-attachments/assets/6766c710-73db-4f00-8e98-311855be0e7b)⊰【 tag i use on Pt 】⊱
 
 
 
