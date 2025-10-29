@@ -1,8 +1,12 @@
 ## ┏━━━━✦❘༻༺❘✦━━━━┓
 
-# Introduction..
+⊰【 Introduction 】⊱
 
 call me Skyler/Joker/Snow/Swan!
+
+She/They | She/Her
+
+
 
 ## ┗━━━━✦❘༻༺❘✦━━━━┛
 
