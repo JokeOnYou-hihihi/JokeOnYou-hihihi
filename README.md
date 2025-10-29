@@ -1,4 +1,4 @@
-# ┏━━━━━━━━✦❘༻༺❘✦━━━━━━━━┓
+# ┏━━━━━━━━━━✦❘༻༺❘✦━━━━━━━━━━┓
 
 ![Image](https://github.com/user-attachments/assets/6766c710-73db-4f00-8e98-311855be0e7b) ⊰【 Introduction 】⊱
 
@@ -60,7 +60,7 @@ Iwec :
 ⌦ People who loved invading people privacy.
 
 
-# ┗━━━━━━━━✦❘༻༺❘✦━━━━━━━━┛
+# ┗━━━━━━━━━━✦❘༻༺❘✦━━━━━━━━━━┛
 
 <!--
 **JokeOnYou-hihihi/JokeOnYou-hihihi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
