@@ -1,6 +1,6 @@
 # ┏━━━━━━━━━━✦❘༻༺❘✦━━━━━━━━━━┓
 
-![Image](https://github.com/user-attachments/assets/6766c710-73db-4f00-8e98-311855be0e7b) $\color{#5A325D}⊰【 Introduction 】⊱$
+![Image](https://github.com/user-attachments/assets/6766c710-73db-4f00-8e98-311855be0e7b) $\color{#9e6999}⊰【 Introduction 】⊱$
 
 call me Skyler/Joker/Snow/Swan!
 
