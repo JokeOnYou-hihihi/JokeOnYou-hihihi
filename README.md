@@ -44,7 +44,9 @@ She/They | She/Her
 
 ![Image](https://github.com/user-attachments/assets/6766c710-73db-4f00-8e98-311855be0e7b) $\color{#9e6999}{⊰【 A Thing 】⊱}$
 
-<img width="99" height="55" alt="Image" src="https://github.com/user-attachments/assets/f4c5823d-9578-49d6-a311-0865e09b72b5" />
+
+<img width="99" height="55" alt="Image" src="https://github.com/user-attachments/assets/f4c5823d-9578-49d6-a311-0865e09b72b5" /> <img width="2048" height="423" alt="Image" src="https://github.com/user-attachments/assets/67f00b33-acd5-4908-bbf6-4b6054ba901e" />
+
 
 ![Image](https://github.com/user-attachments/assets/6766c710-73db-4f00-8e98-311855be0e7b) $\color{#9e6999}{⊰【 DNI+IWEC list 】⊱}$
 
