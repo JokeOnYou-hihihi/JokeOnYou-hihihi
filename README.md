@@ -44,7 +44,7 @@ She/They | She/Her
 
 ![Image](https://github.com/user-attachments/assets/6766c710-73db-4f00-8e98-311855be0e7b) $\color{#9e6999}{⊰【 A Thing 】⊱}$
 
-
+<img width="99" height="55" alt="Image" src="https://github.com/user-attachments/assets/f4c5823d-9578-49d6-a311-0865e09b72b5" />
 
 ![Image](https://github.com/user-attachments/assets/6766c710-73db-4f00-8e98-311855be0e7b) $\color{#9e6999}{⊰【 DNI+IWEC list 】⊱}$
 
