@@ -1,4 +1,4 @@
-# ┏━━━━━━━━━━✦❘༻༺❘✦━━━━━━━━━━┓
+# $\color{#FF00FF}{┏━━━━━━━━━━✦❘༻༺❘✦━━━━━━━━━━┓}$
 
 ![Image](https://github.com/user-attachments/assets/6766c710-73db-4f00-8e98-311855be0e7b) $\color{#9e6999}⊰【 Introduction 】⊱$
 
@@ -69,7 +69,7 @@ $\color{#FF0000}{ Thin Ice:}$
 
 ⌦ SuperSus community/Supersus player
 
-# ┗━━━━━━━━━━✦❘༻༺❘✦━━━━━━━━━━┛
+# $\color{#FF00FF}{┗━━━━━━━━━━✦❘༻༺❘✦━━━━━━━━━━┛}$
 
 <!--
 **JokeOnYou-hihihi/JokeOnYou-hihihi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
