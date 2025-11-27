@@ -1,10 +1,12 @@
-# $\color{#FF00FF}{ ═━-━═❘༻༺❘═━-━═ }$
+
 
 ![Image](https://github.com/user-attachments/assets/6766c710-73db-4f00-8e98-311855be0e7b) $\color{#9e6999}⊰【 Introduction 】⊱$
 
 call me Skyler/Joker/Snow/Swan!
 
 She/They | She/Her
+
+# $\color{#FF00FF}{ ═━-━═❘༻༺❘═━-━═ }$
 
 ![Image](https://github.com/user-attachments/assets/6766c710-73db-4f00-8e98-311855be0e7b) $\color{#9e6999}{⊰【 Information 】⊱}$
 
@@ -45,8 +47,11 @@ She/They | She/Her
 ![Image](https://github.com/user-attachments/assets/6766c710-73db-4f00-8e98-311855be0e7b) $\color{#9e6999}{⊰【 A Thing 】⊱}$
 
 
-<img width="99" height="55" alt="Image" src="https://github.com/user-attachments/assets/f4c5823d-9578-49d6-a311-0865e09b72b5" /> <img width="2048" height="423" alt="Image" src="https://github.com/user-attachments/assets/67f00b33-acd5-4908-bbf6-4b6054ba901e" />
+<img width="99" height="55" alt="Image" src="https://github.com/user-attachments/assets/f4c5823d-9578-49d6-a311-0865e09b72b5" /> <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/7865ec97-62c0-4029-a52c-a125acae8da1" />
 
+<img width="2048" height="423" alt="Image" src="https://github.com/user-attachments/assets/67f00b33-acd5-4908-bbf6-4b6054ba901e" />
+
+# $\color{#FF00FF}{ ═━-━═❘༻༺❘═━-━═ }$
 
 ![Image](https://github.com/user-attachments/assets/6766c710-73db-4f00-8e98-311855be0e7b) $\color{#9e6999}{⊰【 DNI+IWEC list 】⊱}$
 
@@ -75,7 +80,7 @@ $\color{#FF0000}{ Thin Ice:}$
 
 ⌦ SuperSus community/Supersus player
 
-# $\color{#FF00FF}{ ═━-━═❘༻༺❘═━-━═ }$
+
 
 <!--
 **JokeOnYou-hihihi/JokeOnYou-hihihi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
