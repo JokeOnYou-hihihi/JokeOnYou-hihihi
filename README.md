@@ -6,7 +6,7 @@ call me Skyler/Joker/Snow/Swan!
 
 She/They | She/Her
 
-![Image](https://github.com/user-attachments/assets/6766c710-73db-4f00-8e98-311855be0e7b) $\color{#9e6999}$⊰【 Information 】⊱
+![Image](https://github.com/user-attachments/assets/6766c710-73db-4f00-8e98-311855be0e7b) $\color{#9e6999}{⊰【 Information 】⊱}$
 
 ⌦ 𝙈𝙮 𝙜𝙧𝙖𝙢𝙢𝙖𝙧 𝙬𝙖𝙨 𝙩𝙚𝙧𝙧𝙞𝙗𝙡𝙚.
 
@@ -18,7 +18,7 @@ She/They | She/Her
 
 ⌦ Very sensitive in some topic.
 
-![Image](https://github.com/user-attachments/assets/6766c710-73db-4f00-8e98-311855be0e7b) ⊰【 tag i use on Pt 】⊱
+![Image](https://github.com/user-attachments/assets/6766c710-73db-4f00-8e98-311855be0e7b) $\color{#9e6999}{⊰【 tag i use on Pt 】⊱}$
 
 ⌦ 『 Free2Intreact/Int : Please feel free to come and speak with me.』
 
@@ -42,7 +42,7 @@ She/They | She/Her
 
 ⌦ 『 DNIUID || Do Not Intreact Unless I Do : You can give me a cuddle, but don't talk or do anything else. unless I do talk first 』
 
-![Image](https://github.com/user-attachments/assets/6766c710-73db-4f00-8e98-311855be0e7b) ⊰【 DNI+IWEC list 】⊱
+![Image](https://github.com/user-attachments/assets/6766c710-73db-4f00-8e98-311855be0e7b) $\color{#9e6999}{⊰【 DNI+IWEC list 】⊱}$
 
 
 ⌦ Dni :
