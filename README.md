@@ -45,7 +45,7 @@ She/They | She/Her
 ![Image](https://github.com/user-attachments/assets/6766c710-73db-4f00-8e98-311855be0e7b) $\color{#9e6999}{⊰【 DNI+IWEC list 】⊱}$
 
 
-⌦ Dni :
+$\color{#FF0000}{ Dni :}$
 
 i block free.. if i felt uncomfortable.
 
@@ -63,7 +63,7 @@ very iwec :
 
 ⌦ forsaken
 
-Thin Ice : 
+$\color{#FF0000}{ Thin Ice:}$
 
 ⌦ Some Indonesia people
 
