@@ -42,6 +42,10 @@ She/They | She/Her
 
 ⌦ 『 DNIUID || Do Not Intreact Unless I Do : You can give me a cuddle, but don't talk or do anything else. unless I do talk first 』
 
+![Image](https://github.com/user-attachments/assets/6766c710-73db-4f00-8e98-311855be0e7b) $\color{#9e6999}{⊰【 A Thing 】⊱}$
+
+
+
 ![Image](https://github.com/user-attachments/assets/6766c710-73db-4f00-8e98-311855be0e7b) $\color{#9e6999}{⊰【 DNI+IWEC list 】⊱}$
 
 
