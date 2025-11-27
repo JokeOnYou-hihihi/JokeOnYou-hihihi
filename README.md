@@ -1,3 +1,5 @@
+#<img width="734" height="251" alt="Image" src="https://github.com/user-attachments/assets/2cb9cbd6-1937-4c5c-adab-537aa27f065e" />
+
 ![Image](https://github.com/user-attachments/assets/a961822e-0e27-41bf-a500-d76e8db1fbc5) $\color{#9e6999}⊰【 Introduction 】⊱$
 
 call me Skyler/Joker/Snow/Swan!
@@ -77,3 +79,5 @@ $\color{#FF0000}{ Thin Ice:}$
 ⌦ Some Indonesia people
 
 ⌦ SuperSus community/Supersus player
+
+#<img width="734" height="251" alt="Image" src="https://github.com/user-attachments/assets/c6212c2d-886a-41ee-a409-8c786b8a3524" />
