@@ -47,7 +47,9 @@ She/They | She/Her
 ![Image](https://github.com/user-attachments/assets/6766c710-73db-4f00-8e98-311855be0e7b) $\color{#9e6999}{⊰【 A Thing 】⊱}$
 
 
-<img width="99" height="55" alt="Image" src="https://github.com/user-attachments/assets/f4c5823d-9578-49d6-a311-0865e09b72b5" /> <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/7865ec97-62c0-4029-a52c-a125acae8da1" /> <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/3e1b0231-1c7c-46ea-814f-191aba1738f1" />
+<img width="99" height="55" alt="Image" src="https://github.com/user-attachments/assets/f4c5823d-9578-49d6-a311-0865e09b72b5" /> <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/7865ec97-62c0-4029-a52c-a125acae8da1" /> <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/3e1b0231-1c7c-46ea-814f-191aba1738f1" /> <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/12f08e03-b24d-49fb-a81b-14ef59de11c0" />
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/7186c68a-1b03-4c17-b007-14902e9c9743" />
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/5564d335-10bb-4146-bd54-17f90d399abc" />
 
 ![Image](https://github.com/user-attachments/assets/4c71e49f-7851-455a-8559-dee9b4417ac2) ![Image](https://github.com/user-attachments/assets/f66c61c0-873f-4685-8227-91c8c3ce5513) ![Image](https://github.com/user-attachments/assets/84f2ad48-d582-4e6f-9ddb-241337b1090d) ![Image](https://github.com/user-attachments/assets/69a920ce-7b4c-4b76-b558-013f4eada058)
 
