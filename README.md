@@ -49,7 +49,7 @@ She/They | She/Her
 
 <img width="99" height="55" alt="Image" src="https://github.com/user-attachments/assets/f4c5823d-9578-49d6-a311-0865e09b72b5" /> <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/7865ec97-62c0-4029-a52c-a125acae8da1" /> <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/3e1b0231-1c7c-46ea-814f-191aba1738f1" />
 
-![Image](https://github.com/user-attachments/assets/4c71e49f-7851-455a-8559-dee9b4417ac2)
+![Image](https://github.com/user-attachments/assets/4c71e49f-7851-455a-8559-dee9b4417ac2) ![Image](https://github.com/user-attachments/assets/f66c61c0-873f-4685-8227-91c8c3ce5513) ![Image](https://github.com/user-attachments/assets/84f2ad48-d582-4e6f-9ddb-241337b1090d)
 
 <img width="2048" height="423" alt="Image" src="https://github.com/user-attachments/assets/67f00b33-acd5-4908-bbf6-4b6054ba901e" />
 
@@ -82,4 +82,4 @@ $\color{#FF0000}{ Thin Ice:}$
 
 ⌦ SuperSus community/Supersus player
 
-<img width="734" height="251" alt="Image" src="https://github.com/user-attachments/assets/c6212c2d-886a-41ee-a409-8c786b8a3524" />
+<img width="734" height="251" alt="Image" src="https://github.com/user-attachments/assets/12af25cb-babd-46e9-a2fd-e9e325c1a4cd" />
