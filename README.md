@@ -55,7 +55,7 @@ She/They | She/Her
 
 ![Image](https://github.com/user-attachments/assets/4c71e49f-7851-455a-8559-dee9b4417ac2) ![Image](https://github.com/user-attachments/assets/f66c61c0-873f-4685-8227-91c8c3ce5513) ![Image](https://github.com/user-attachments/assets/84f2ad48-d582-4e6f-9ddb-241337b1090d) ![Image](https://github.com/user-attachments/assets/69a920ce-7b4c-4b76-b558-013f4eada058)<img width="100" height="65" alt="Image" src="https://github.com/user-attachments/assets/708ebde3-d0e3-488f-9fb5-e528d8320abe" /> <img width="100" height="65" alt="Image" src="https://github.com/user-attachments/assets/38eba0e7-0937-4426-ab4c-dd768417218f" /> ![Image](https://github.com/user-attachments/assets/f7aff80c-4543-43d5-b339-fd1792396a43)
 
-<img width="400" height="105" alt="Image" src="https://github.com/user-attachments/assets/67f00b33-acd5-4908-bbf6-4b6054ba901e" />
+<img width="400" height="105" alt="Image" src="https://github.com/user-attachments/assets/67f00b33-acd5-4908-bbf6-4b6054ba901e" /> <img width="400" height="105" alt="Image" src="https://github.com/user-attachments/assets/17d0193c-3575-4687-a606-a02b76514528" />
 
 # $\color{#FF00FF}{ ═━-━═❘༻༺❘═━-━═ }$
 
