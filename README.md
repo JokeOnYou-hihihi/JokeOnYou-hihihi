@@ -20,7 +20,7 @@ She/They | She/Her
 
 ⌦ Very sensitive in some topic.
 
-![Image](https://github.com/user-attachments/assets/a961822e-0e27-41bf-a500-d76e8db1fbc5) $\color{#9e6999}{⊰【 tag i use on Pt 】⊱}$
+![Image](https://github.com/user-attachments/assets/a961822e-0e27-41bf-a500-d76e8db1fbc5) $\color{#9e6999}{⊰【 Tag I Use On PT 】⊱}$
 
 ⌦ 『 Free2Intreact/Int : Please feel free to come and speak with me.』
 
