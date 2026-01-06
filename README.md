@@ -20,6 +20,8 @@ She/They | She/Her
 
 ⌦ Very sensitive in some topic.
 
+⌦ You can find me anywhere and some Mafia/Hangout Place in Pony town but i usually sit on (Former?) Phighting fandom area.
+
 ![Image](https://github.com/user-attachments/assets/a961822e-0e27-41bf-a500-d76e8db1fbc5) $\color{#9e6999}{⊰【 Tag I Use On PT 】⊱}$
 
 ⌦ 『 Free2Intreact/Int : Please feel free to come and speak with me.』
