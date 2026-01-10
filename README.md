@@ -6,7 +6,7 @@ call me Skyler/Joker/Snow/Swan/NarratorClown!
 
 She/They | She/Her ( Other Pronouns is okay )
 
-# $\color{#FF00FF}{ ⊰═══⊱ 🃟 ⊰═══⊱ }$
+# $\color{#FF00FF}{ ⊰ 🃟 ⊱ }$
 
 ![Image](https://github.com/user-attachments/assets/6766c710-73db-4f00-8e98-311855be0e7b) $\color{#9e6999}{⊰【 Information 】⊱}$
 
@@ -63,7 +63,7 @@ She/They | She/Her ( Other Pronouns is okay )
 <img width="400" height="105" alt="Image" src="https://github.com/user-attachments/assets/67f00b33-acd5-4908-bbf6-4b6054ba901e" /> <img width="400" height="105" alt="Image" src="https://github.com/user-attachments/assets/17d0193c-3575-4687-a606-a02b76514528" /> <img width="400" height="105" alt="Image" src="https://github.com/user-attachments/assets/04bec8f7-f22f-430f-b4ac-2a9cc045d21e" />
 <img width="400" height="105" alt="Image" src="https://github.com/user-attachments/assets/2623db81-f900-43e6-8bdf-79d42513625a" /> <img width="400" height="105" alt="Image" src="https://github.com/user-attachments/assets/a474d0ed-cf41-4648-aa1c-e1567f72b35b" /> <img width="400" height="105" alt="Image" src="https://github.com/user-attachments/assets/5d3f5911-fd80-4f8f-a7d8-c8935ba820c3" /> <img width="400" height="105" alt="Image" src="https://github.com/user-attachments/assets/d265b676-4f7f-4c9b-b384-779476a970af" /> <img width="400" height="105" alt="Image" src="https://github.com/user-attachments/assets/44fc545a-87a6-4d2e-af65-664d0f8e1d02" /> <img width="400" height="105" alt="Image" src="https://github.com/user-attachments/assets/24a09a58-cc44-4e8f-81b5-9abef02b7453" />
 
-# $\color{#FF00FF}{ ═━-━═❘༻༺❘═━-━═ }$
+# $\color{#FF00FF}{ ⊰ 🃟 ⊱ }$
 
 ![Image](https://github.com/user-attachments/assets/a961822e-0e27-41bf-a500-d76e8db1fbc5) $\color{#9e6999}{⊰【 DNI+IWEC list 】⊱}$
 
