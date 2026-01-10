@@ -82,11 +82,13 @@ $\color{#ADD8E6}{ Iwec :}$
 
 ⌦ People who loved invading people privacy.
 
-$\color{#FFA500}{very iwec :}$
+$\color{#FFA500}{very-iwec :}$
 
 ⌦ forsaken
 
-$\color{#FF0000}{ Thin Ice:}$
+⌦ Some Yumeshipper (Some of you is disgusting and scared me out)
+
+$\color{#FF0000}{ Thin-Ice:}$
 
 ⌦ Some Indonesia people
 
