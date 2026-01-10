@@ -6,7 +6,7 @@ call me Skyler/Joker/Snow/Swan/NarratorClown!
 
 She/They | She/Her ( Other Pronouns is okay )
 
-# $\color{#FF00FF}{ ═━-━═❘༻༺❘═━-━═ }$
+# $\color{#FF00FF}{ ⊰═══⊱ 🃟 ⊰═══⊱ }$
 
 ![Image](https://github.com/user-attachments/assets/6766c710-73db-4f00-8e98-311855be0e7b) $\color{#9e6999}{⊰【 Information 】⊱}$
 
@@ -22,7 +22,7 @@ She/They | She/Her ( Other Pronouns is okay )
 
 ⌦ You can find me anywhere and some Mafia/Hangout Place in Pony town but i usually sit on (Former?) Phighting fandom area.
 
-![Image](https://github.com/user-attachments/assets/a961822e-0e27-41bf-a500-d76e8db1fbc5) $\color{#9e6999}{⊰【 Tag I Use On PT 】⊱}$
+![Image](https://github.com/user-attachments/assets/a961822e-0e27-41bf-a500-d76e8db1fbc5) $\color{#9e6999}{⊰【 Tag-I-Use-On-PT 】⊱}$
 
 ⌦ 『 Free2Intreact/Int : Please feel free to come and speak with me.』
 
@@ -46,7 +46,7 @@ She/They | She/Her ( Other Pronouns is okay )
 
 ⌦ 『 DNIUID || Do Not Intreact Unless I Do : You can give me a cuddle, but don't talk or do anything else. unless I do talk first 』
 
-![Image](https://github.com/user-attachments/assets/6766c710-73db-4f00-8e98-311855be0e7b) $\color{#9e6999}{⊰【 A Thing 】⊱}$
+![Image](https://github.com/user-attachments/assets/6766c710-73db-4f00-8e98-311855be0e7b) $\color{#9e6999}{⊰【 A-Thing 】⊱}$
 
 
 <img width="99" height="55" alt="Image" src="https://github.com/user-attachments/assets/f4c5823d-9578-49d6-a311-0865e09b72b5" /> <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/7865ec97-62c0-4029-a52c-a125acae8da1" /> <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/3e1b0231-1c7c-46ea-814f-191aba1738f1" /> <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/12f08e03-b24d-49fb-a81b-14ef59de11c0" />
