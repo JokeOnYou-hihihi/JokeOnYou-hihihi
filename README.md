@@ -1,4 +1,4 @@
-<img width="734" height="251" alt="Image" src="https://github.com/user-attachments/assets/2cb9cbd6-1937-4c5c-adab-537aa27f065e" />
+<img width="850" height="270" alt="Image" src="https://github.com/user-attachments/assets/2cb9cbd6-1937-4c5c-adab-537aa27f065e" />
 
 ![Image](https://github.com/user-attachments/assets/a961822e-0e27-41bf-a500-d76e8db1fbc5) $\color{#9e6999}⊰【 Introduction 】⊱$
 
@@ -96,4 +96,4 @@ $\color{#FF0000}{ Thin-Ice:}$
 
 ⌦ SuperSus community/Supersus player
 
-<img width="734" height="251" alt="Image" src="https://github.com/user-attachments/assets/12af25cb-babd-46e9-a2fd-e9e325c1a4cd" />
+<img width="850" height="270" alt="Image" src="https://github.com/user-attachments/assets/12af25cb-babd-46e9-a2fd-e9e325c1a4cd" />
