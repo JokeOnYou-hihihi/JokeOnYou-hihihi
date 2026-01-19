@@ -4,7 +4,9 @@
 
 call me Skyler/Joker/Snow/Swan/NarratorClown!
 
-She/They | She/Her ( Other Pronouns is okay )
+She/Her | She/They ( Other Pronouns is okay )
+
+Taken by my beloved lover | 
 
 # $\color{#FF00FF}{ ⊰═⊱ 🃟 ⊰═⊱ }$
 
