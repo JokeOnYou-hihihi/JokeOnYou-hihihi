@@ -4,7 +4,7 @@
 
 call me Narrator/Aaron/Skyler/Swan/Joker (I have lot name)
 
-She/Her | She/They ( Other Pronouns is okay )
+Any pronoun | mostly She/They ( Other Pronouns is okay )
 
 Taken by my beloved lover | 
 
