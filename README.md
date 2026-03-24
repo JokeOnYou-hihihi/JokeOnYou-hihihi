@@ -2,7 +2,7 @@
 
 ![Image](https://github.com/user-attachments/assets/a961822e-0e27-41bf-a500-d76e8db1fbc5) $\color{#9e6999}⊰【 Introduction 】⊱$
 
-call me Skyler/Joker/Snow/Swan/NarratorClown!
+call me Narrator/Aaron/Skyler/Swan/Joker (I have lot name)
 
 She/Her | She/They ( Other Pronouns is okay )
 
