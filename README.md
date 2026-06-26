@@ -6,7 +6,6 @@ call me Narrator/Aaron/Skyler/Swan/Joker (I have lot name)
 
 Any pronoun | mostly She/They ( Other Pronouns is okay )
 
-Taken by my beloved lover | 
 
 # $\color{#FF00FF}{ ⊰═⊱ 🃟 ⊰═⊱ }$
 
@@ -91,7 +90,7 @@ $\color{#FFA500}{very-iwec :}$
 
 $\color{#FF0000}{ Thin-Ice:}$
 
-⌦ Some Indonesia people
+⌦ Some Indonesia people -> I prefer if they were IWEC/IWC or just dni me.
 
 ⌦ SuperSus community/Supersus player
 
