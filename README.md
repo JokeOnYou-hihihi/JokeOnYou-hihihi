@@ -21,6 +21,8 @@ Any pronoun | mostly She/They ( Other Pronouns is okay )
 
 ⌦ Very sensitive in some topic.
 
+⌦ I sometime have Touch Discomfort.
+
 ⌦ You can find me anywhere and some Mafia/Hangout Place in Pony town but i usually sit on (Former?) Phighting fandom area.
 
 ![Image](https://github.com/user-attachments/assets/a961822e-0e27-41bf-a500-d76e8db1fbc5) $\color{#9e6999}{⊰【 Tag-I-Use-On-PT 】⊱}$
@@ -39,13 +41,8 @@ Any pronoun | mostly She/They ( Other Pronouns is okay )
 
 ⌦ 『 AFK || Away From Keyboard : It means I do something in real life. 』
 
-⌦ 『 DNI || Do Not Intreact : You can give me a cuds, but don't talk or do anything else. 』
+⌦ 『 DNI || Do Not Intreact : 』
 
-⌦ 『 DNIUF || Do Not Intreact Unless friend : You can give me a cuds, but don't talk or do anything else. unless friend. friend still can intreact me freely 』
-
-⌦ 『 DNIUCF || Do Not Intreact Unless close friend : You can give me a cuds, but don't talk or do anything else. unless close friend. close friend still can intreact me freely 』
-
-⌦ 『 DNIUID || Do Not Intreact Unless I Do : You can give me a cuddle, but don't talk or do anything else. unless I do talk first 』
 
 ![Image](https://github.com/user-attachments/assets/6766c710-73db-4f00-8e98-311855be0e7b) $\color{#9e6999}{⊰【 A-Thing 】⊱}$
 
