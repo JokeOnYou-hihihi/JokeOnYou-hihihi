@@ -13,7 +13,7 @@ Any pronoun | mostly She/They ( Other Pronouns is okay )
 
 ⌦ 𝙈𝙮 𝙜𝙧𝙖𝙢𝙢𝙖𝙧 𝙬𝙖𝙨 𝙩𝙚𝙧𝙧𝙞𝙗𝙡𝙚.
 
-⌦ 𝙋𝙡𝙚𝙖𝙨𝙚 𝙛𝙚𝙚𝙡 𝙛𝙧𝙚𝙚 𝙩𝙤 𝙘𝙪𝙙𝙙𝙡𝙚 𝙢𝙚 𝙚𝙫𝙚𝙣 𝙞𝙛 𝙄 𝙝𝙖𝙫𝙚 𝘿𝙉𝙄 𝙗𝙚𝙘𝙖𝙪𝙨𝙚 𝙄 𝙛𝙞𝙣𝙙 𝙨𝙤𝙡𝙖𝙘𝙚 𝙞𝙣 𝙘𝙪𝙙𝙙𝙡𝙚𝙨.
+⌦ 𝙋𝙡𝙚𝙖𝙨𝙚 INTREACT WITH CAUTION.
 
 ⌦ 𝙾𝚗𝚕𝚢 𝚖𝚢 𝚏𝚛𝚒𝚎𝚗𝚍𝚜 𝚌𝚊𝚗 𝚐𝚒𝚟𝚎 𝚖𝚎 𝚗𝚒𝚌𝚔𝚗𝚊𝚖𝚎𝚜
 
@@ -21,7 +21,7 @@ Any pronoun | mostly She/They ( Other Pronouns is okay )
 
 ⌦ Very sensitive in some topic.
 
-⌦ I sometime have Touch Discomfort.
+⌦ I sometime have Touch Discomfort/Crowd Discomfort.
 
 ⌦ You can find me anywhere and some Mafia/Hangout Place in Pony town but i usually sit on (Former?) Phighting fandom area.
 
@@ -41,7 +41,11 @@ Any pronoun | mostly She/They ( Other Pronouns is okay )
 
 ⌦ 『 AFK || Away From Keyboard : It means I do something in real life. 』
 
-⌦ 『 DNI || Do Not Intreact : 』
+⌦ 『 DNI || Do Not Intreact : it mean no intreact 』
+
+⌦ 『 TD || Touch Discomfort : no boop or touch 』 「 just sometime. check pony if i have TD or nah 」
+
+⌦ 『 CD || Crowd Discomfort : No crowding me. 』 「 I rarely feel CD. but check pony if I have CD or nah 」
 
 
 ![Image](https://github.com/user-attachments/assets/6766c710-73db-4f00-8e98-311855be0e7b) $\color{#9e6999}{⊰【 A-Thing 】⊱}$
@@ -81,14 +85,11 @@ $\color{#ADD8E6}{ Iwec :}$
 
 $\color{#FFA500}{very-iwec :}$
 
-⌦ forsaken
-
 ⌦ Some Yumeshipper (Some of you is disgusting and scared me out)
 
 $\color{#FF0000}{ Thin-Ice:}$
 
-⌦ Some Indonesia people -> I prefer if they were IWEC/IWC or just dni me.
+⌦ Some Indonesia people -> I prefer if they were IWEC/IWC 
 
-⌦ SuperSus community/Supersus player
 
 <img width="850" height="270" alt="Image" src="https://github.com/user-attachments/assets/12af25cb-babd-46e9-a2fd-e9e325c1a4cd" />
