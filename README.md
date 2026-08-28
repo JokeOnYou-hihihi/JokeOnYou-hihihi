@@ -19,6 +19,8 @@ Any pronoun | idc
 
 ⌦ 𝐈 𝐚𝐥𝐰𝐚𝐲𝐬 𝐠𝐨 𝐎𝐟𝐟𝐭𝐚𝐛, 𝐬𝐨 𝐈 𝐰𝐨𝐮𝐥𝐝 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐞 𝐢𝐭 𝐢𝐟 𝐲𝐨𝐮 𝐰𝐡𝐢𝐬𝐩𝐞𝐫𝐞𝐝 𝐭𝐨 𝐦𝐞.
 
+⌦ I have idetity crisis sometime.
+
 ⌦ Very sensitive in some topic.
 
 ⌦ I sometime have Touch Discomfort/Crowd Discomfort.
