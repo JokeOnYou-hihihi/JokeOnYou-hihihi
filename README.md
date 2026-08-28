@@ -4,7 +4,7 @@
 
 call me Narrator/Aaron/Skyler/Swan/Joker (I have lot name)
 
-Any pronoun | mostly She/They ( Other Pronouns is okay )
+Any pronoun | idc
 
 
 # $\color{#FF00FF}{ ⊰═⊱ 🃟 ⊰═⊱ }$
@@ -87,9 +87,6 @@ $\color{#FFA500}{very-iwec :}$
 
 ⌦ Some Yumeshipper (Some of you is disgusting and scared me out)
 
-$\color{#FF0000}{ Thin-Ice:}$
-
-⌦ Some Indonesia people -> I prefer if they were IWEC/IWC 
 
 
 <img width="850" height="270" alt="Image" src="https://github.com/user-attachments/assets/12af25cb-babd-46e9-a2fd-e9e325c1a4cd" />
