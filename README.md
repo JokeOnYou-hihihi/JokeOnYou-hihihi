@@ -4,7 +4,7 @@
 
 call me Narrator/Aaron/Skyler/Swan/Joker (I have lot name)
 
-Any pronoun | idc
+Any / Mirror pronouns 
 
 
 # $\color{#FF00FF}{ ⊰═⊱ 🃟 ⊰═⊱ }$
@@ -13,7 +13,7 @@ Any pronoun | idc
 
 ⌦ 𝙈𝙮 𝙜𝙧𝙖𝙢𝙢𝙖𝙧 𝙬𝙖𝙨 𝙩𝙚𝙧𝙧𝙞𝙗𝙡𝙚.
 
-⌦ 𝙋𝙡𝙚𝙖𝙨𝙚 INTREACT WITH CAUTION.
+⌦ 𝙋𝙡𝙚𝙖𝙨𝙚 INTREACT WITH CAUTION OR CARE.
 
 ⌦ 𝙾𝚗𝚕𝚢 𝚖𝚢 𝚏𝚛𝚒𝚎𝚗𝚍𝚜 𝚌𝚊𝚗 𝚐𝚒𝚟𝚎 𝚖𝚎 𝚗𝚒𝚌𝚔𝚗𝚊𝚖𝚎𝚜
 
@@ -23,7 +23,7 @@ Any pronoun | idc
 
 ⌦ Very sensitive in some topic.
 
-⌦ I sometime have Touch Discomfort/Crowd Discomfort.
+⌦ I sometime have Touch Discomfort/Crowd Discomfort. but C+H always welcome if I have none of that.
 
 ⌦ You can find me anywhere and some Mafia/Hangout Place in Pony town but i usually sit on (Former?) Phighting fandom area.
 
